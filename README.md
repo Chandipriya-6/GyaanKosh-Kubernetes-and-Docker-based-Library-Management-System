@@ -115,7 +115,7 @@ During my internship period, I participated in multiple community-oriented and p
 
 ### **Activities Involved**
 <!-- add the location where you given -->
-- **Blood Donation** – Donated blood and supported basic assistance tasks during the camp.
+- **Work Culture & Ethics Workshops** – Attended specialized sessions on professional conduct, workplace integrity, and corporate etiqutte.
   
  <!-- add the location where you have panted -->
 - **Tree Plantation Drive** – Participated by planting trees and contributing to environmental improvement.
@@ -127,11 +127,11 @@ During my internship period, I participated in multiple community-oriented and p
 
 ### **Impact / Contribution**
 
-- Helped create a supportive environment during the blood donation camp. <!-- add the location where you given -->
+- Successfully integrated stress management techniques to maintain productivity while contributing positvely to social causes <!-- add the location where you given -->
 - Actively participated in promoting a greener and cleaner surroundings.
 - Offered personal assistance to elder citizens, strengthening community bonds.
 - Improved skills in communication, coordination, and social responsibility.
-
+- Improved communication and coordination skills through group activities , building the confidence necessary for modern work cultures.
 ### **Photos**
 
 <!-- add your photos below -->
